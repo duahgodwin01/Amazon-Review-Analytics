@@ -6,7 +6,7 @@
 
 Harrisburg University of Science & Technology
 
-2nd April, 2026.
+2nd April, 2026
 
 **Overview**
 
